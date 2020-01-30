@@ -1,4 +1,4 @@
-# Hello and Welcome, you are now reading this useless text.
+# Hello and Welcome, please take some time to read this useless text, for motivation.
 
 * One Cat you ate.
 
