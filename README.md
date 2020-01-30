@@ -12,7 +12,7 @@ Five cats, in piece one.
 
 Six cats, of ash.
 
-Seven cats, Godlyness.
+Seven cats, Godlyness here.
 
 
 Now go back and read every next to last word in every sentence from top to bottom.
